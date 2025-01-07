@@ -1,4 +1,4 @@
-# Best Lightweight Winter Jackets for 2024
+# Best Lightweight Winter Jackets for 2025
 
 ## What is in This Article for You?
 - Tight warm jackets for other types of holidays.
